@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @chilledMia
+- 👀 I’m interested in smoking w33d, coding, setting up networks
+- 🌱 I’m currently learning IT specialist for system integration
+- 📫 How to reach me -> via discord https://discord.io/skyhazeeu+
